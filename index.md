@@ -100,11 +100,5 @@ TEETS DNA COUSIN TOKEN
 Read more
 
 COUSIN DNA TOKEN (POLYGON) (non-DNA.txt)
-SALE!$20.00 $10.00Add to cart
-Search
-Search
-Hello world!
-Vitus on Hello world!
-Categories
-Uncategorized
+SALE!$20.00 $10.00
 © Cousin DNA 2022
