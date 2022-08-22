@@ -1,10 +1,9 @@
 # cdna
-Skip to navigationSkip to content
+
 Cousin DNA
-Menu
-Expand child menu
+
 Home/Community Cryptocurrency/COUSINDNA TOKEN ZIL
-SALE!
+
 
 COUSINDNA TOKEN ZIL
 $20.00 $10.00
